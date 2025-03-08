@@ -1,1 +1,0 @@
-# nchu_automatic
